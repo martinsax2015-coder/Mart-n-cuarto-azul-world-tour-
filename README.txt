@@ -1,0 +1,1 @@
+Martín Cuarto Azul World Tour. Añadida sección de vídeos de anuncio. No hay un límite numérico impuesto por la app; el límite real es el almacenamiento disponible del dispositivo/navegador. Los vídeos no se publican automáticamente.
